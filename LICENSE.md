@@ -1,4 +1,4 @@
-
+Enhance Things 3 for macOS with advanced Things 3 for macOS Plugin | multi-device sync + task automation, the #1 plugin. Includes multi-device sync and task automation for a
 
 
 
